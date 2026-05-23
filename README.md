@@ -11,11 +11,11 @@
     </tr>
     </table>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=r50omvhsrl8w858a7wx8gqxox&cover_image=false&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=343332&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)  <img src="https://komarev.com/ghpvc/?username=overoverkill&style=plastic&color=eba657&label=JEREMY" alt="profile view counter" align="up">
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=r50omvhsrl8w858a7wx8gqxox&cover_image=false&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=343332&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)  <img src="https://komarev.com/ghpvc/?username=overoverkill&style=plastic&color=eba657&label=swag" alt="profile view counter" align="up">
 <img src="https://files.catbox.moe/vxhw1k.webp" width="50" height="50" align="up">
 
 
-   ㅤ   ㅤ  ㅤ   ㅤ   ㅤ    ㅤ   ㅤ<img src="https://file.garden/ZuZ2lbGXMH8X3xdK/comm%20stuff/spoke/spokepix1.gif"> ${\textsf{\color{#E9E6D5} ⺡}}$ ${\textsf{\color{#9F318A} ﹒}}$ ${\textsf{\color{#ECC789} ۶}}$ [rentry](https://rentry.co/duaIity)${\textsf{\color{#E9E6D5} ⁺ }}$[ata](https://sizhui.atabook.org/) ${\textsf{\color{#9F318A} ﹑}}$ ${\textsf{\color{#ECC789}✿}}$ ${\textsf{\color{#E9E6D5}゛}}$ <img src="https://file.garden/ZuZ2lbGXMH8X3xdK/comm%20stuff/spoke/spokeicon.png">
+   ㅤ   ㅤ  ㅤ   ㅤ   ㅤ    ㅤ   ㅤ<img src="https://files.catbox.moe/0flgqz.gif"> ${\textsf{\color{#E9E6D5} ⺡}}$ ${\textsf{\color{#9F318A} ﹒}}$ ${\textsf{\color{#ECC789} ۶}}$ [rentry](https://rentry.co/qrws)${\textsf{\color{#E9E6D5} ⁺ }}$[ata](https://aculon.atabook.org/) ${\textsf{\color{#9F318A} ﹑}}$ ${\textsf{\color{#ECC789}✿}}$ ${\textsf{\color{#E9E6D5}゛}}$ >
 
 <br>
 
